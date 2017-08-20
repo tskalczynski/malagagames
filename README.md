@@ -1,0 +1,2 @@
+# malagagames
+GitHub Pages
